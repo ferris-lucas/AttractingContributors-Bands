@@ -38,3 +38,5 @@ John A. Shedd
 ### 3. Repetition is the mother of learning   
 Anonymous
 
+### 4. Don't let your happiness depend on something you may lose.
+C.S. Lewis
